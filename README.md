@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @tomiosiyemi
+- 👀 I’m interested in UX Design
+- 🌱 I’m currently learning Motion Design
+- 💞️ I’m looking to collaborate on fulltime or part-time projects
+- 📫 How to reach me tomiosiyemi@gmail.com
+- 💞️ linked in, IG, Twitter Tomi Osiyemi
